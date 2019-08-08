@@ -40,3 +40,6 @@
 <img src='http://gfw-breaker.win/pdf/zifen/p039.png?ok'/><hr/>
 <img src='http://gfw-breaker.win/pdf/zifen/p040.png?ok'/><hr/>
 </div>
+
+<img src='http://gfw-breaker.win/truth-stat.png' width='1px' height='1px'/>
+

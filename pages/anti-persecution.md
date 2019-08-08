@@ -128,3 +128,6 @@ BBC指出，法轮功学员实际上是中共器官移植的主要供体。在�
 
 [<b>首页</b>](../README.md) &nbsp;&nbsp;|&nbsp;&nbsp; [<b>手机上长按此链接分享</b>](#) 
 
+
+<img src='http://gfw-breaker.win/truth-stat.png' width='1px' height='1px'/>
+
